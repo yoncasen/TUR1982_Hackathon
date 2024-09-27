@@ -2,4 +2,4 @@
 
 ## Projemin fikri:
 
-> İklim Değişikliği
+> İklim Değişikliği - Meme Generator iklim değişikliği için afiş hazırlasın
